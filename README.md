@@ -1,2 +1,2 @@
-# je suis aminatou alioum 
-## Data analyst
+# je suis Aminatou Alioum 
+## Data analyst/élève ingénieur en Humanités numérique 
